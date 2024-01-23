@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TSKhumalo
-- 👀 I’m interested in swimming and coding. 
+- 👀 I’m interested in traveling. 
 - 🌱 I’m currently learning learning how to code!
 - 📫 How to reach me... uhm you can't :)
 
